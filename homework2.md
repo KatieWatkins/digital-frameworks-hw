@@ -8,4 +8,4 @@ There were only four times when the majority of Republicans (defined here as ove
   3. Reducing Unnecessary Barriers for Relative Foster Parents Act
   4. Accelerating Individuals into the Workforce Act
   
-On the flip side, there was never a time when a majority of Republicans voted no and Biggs voted yes. 
+On the flip side, there was never a time when the majority of Republicans voted no and Biggs voted yes. 
