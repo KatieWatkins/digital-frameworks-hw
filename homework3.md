@@ -2,7 +2,8 @@ Although running largely unopposed in the upcoming 2018 congressional race, Cath
 
 Her campaign raised $661,458 from April 1 to June 30, with money marked for both the primary and general elections, according to the latest campaign finance reports filed with the Federal Election Commission.
 
-The biggest chunk of her donations came from The McMorris Rodgers American Dream Project, a joint fundraising committee for her reelection campaign, leadership PAC, and the National Republican Campaign committee. The group made six separate donations over the past three months, totaling $128,338. In the year to date, the committee has contributed $199,714 to her campaign.   
+The biggest chunk of her donations came from The McMorris Rodgers American Dream Project, a joint fundraising committee for her reelection campaign, leadership PAC, and the National Republican Campaign committee. The group made six separate donations over the past three months, totaling $128,338. In the year to date, the committee has contributed $199,714 to her campaign. 
+
 Other contributions during the second quarter were of $5,000 and below, including donations from the Microsoft Corporation PAC ($5,000), Halliburton Company PAC ($5,000), and the American Forest & Paper Association PAC ($5,000). 
 
 McMorris Rodgers is currently serving her sixth term in congress. She is the Chair of the House Republican Conference and the highest-ranking woman in congress. While Democrat and Spokane City Council President Ben Stuckart was set to challenge McMorris Rodgers in the 2018 elections, he [announced in June](http://www.spokesman.com/stories/2017/jun/06/stuckart-drops-out-of-congressional-race-citing-fa/) that he was dropping out of the race due to family health issues. 
