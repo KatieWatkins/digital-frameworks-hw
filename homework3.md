@@ -8,7 +8,7 @@ Other contributions during the second quarter were of $5,000 and below, includin
 
 McMorris Rodgers is currently serving her sixth term in congress. She is the Chair of the House Republican Conference and the highest-ranking woman in congress. While Democrat and Spokane City Council President Ben Stuckart was set to challenge McMorris Rodgers in the 2018 elections, he [announced in June](http://www.spokesman.com/stories/2017/jun/06/stuckart-drops-out-of-congressional-race-citing-fa/) that he was dropping out of the race due to family health issues. 
 
-Matthew Sutherland, 24, a Washington State University alumnus, is [now the only registered Democrat] (http://www.spokesman.com/stories/2017/apr/12/wsu-student-wants-to-challenge-cathy-mcmorris-rodg/) in the race against McMorris Rodgers. He is running a grassroots campaign, and has raised $5,147 to date, according to the FEC campaign finance filings. 
+Matthew Sutherland, 24, a Washington State University alumnus, is [now the only registered Democrat](http://www.spokesman.com/stories/2017/apr/12/wsu-student-wants-to-challenge-cathy-mcmorris-rodg/) in the race against McMorris Rodgers. He is running a grassroots campaign, and has raised $5,147 to date, according to the FEC campaign finance filings. 
 
 When it came to expenses, the McMorris Rodgers campaign spent $228,502 during the second quarter. The biggest expense was $33,177 to pay off credit card payments. The second biggest expense was $12,016 for fundraising direct mailers.
 
