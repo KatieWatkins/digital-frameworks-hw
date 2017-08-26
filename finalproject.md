@@ -4,7 +4,7 @@ A Christmas tree with lights, a wizard hat, a tennis racket — no, Santa didn�
 
 ![Alt-Text](strange.png)
 
-Held annually over the past 30 years, this annual event mobilizes people to pick up trash from their shores, while also utilizing citizen science to record just how much trash is being picked up and what exactly it consists of. Some of the stranger items that were found during the most recent clean-up include 56 toilets, five selfie-sticks and one piano. More seriously, however, the results also show that the most common items found across the globe continue to be cigarette butts, plastic beverage bottles, and plastic bags. 
+Held annually over the past 30 years, this event mobilizes people to pick up trash from their shores, while also utilizing citizen science to record just how much trash is being collected and what exactly it consists of. Some of the stranger items found during the most recent clean-up include 56 toilets, five selfie-sticks and one piano. More seriously, however, the results also show that the most common items found across the globe continue to be cigarette butts, plastic beverage bottles, and plastic bags. 
 
 Overall, the survey results provide a key glimpse into just how much trash is accumulating in the ocean — and the results are alarming. This year alone, over 500,000 people from 112 different countries, picked up 13.8 million items of trash that weighed a total of nearly 18.4 million pounds. Since 1985, the organization has recorded over 228.9 million pounds of trash that has been collected during the coastal clean-ups. Clearly, we have a trash problem. 
 
