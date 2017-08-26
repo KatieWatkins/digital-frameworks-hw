@@ -13,7 +13,9 @@ Of course this survey doesn’t even touch on the [massive trash vortex](http://
 The issue has already arrived to Congress. At the beginning of the month, the Senate [passed the Save Our Seas Act](https://oceanconservancy.org/blog/2017/08/07/senate-passes-save-seas-act/), which calls on the State Department to collaborate with other countries to reduce marine debris, and reauthorizes the National Oceanic and Atmospheric Administration’s Marine Debris Program for another five years. After the recess, the House is set to discuss the bill. 
 
 ### So as Congress talks trash, just how does the U.S. stack up when it comes to trash in our oceans?
-(chart) 
+
+![Alt-Text](top10.png)
+
 paragraphs discussing data in the charts
 While the data is only publically available for the past two years, it’s still interesting to note several trends that emerge. 
 So what’s next?
